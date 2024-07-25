@@ -1,0 +1,1 @@
+https://www.linkedin.com/posts/doguner1_swiftui-gizlilik-mobiluygulamageliagntirme-activity-7219719791450738689-v96g?utm_source=combined_share_message&utm_medium=member_desktop
